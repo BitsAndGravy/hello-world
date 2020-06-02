@@ -1,2 +1,2 @@
 # hello-world
-No clue what I am doing yet
+I am a pharmacist, guitar player, athlete, chess player, artist, reader, and technology enthusiast.
